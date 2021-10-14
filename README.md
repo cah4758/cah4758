@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @cah4758
+- 👋 Hi, I’m Charles Hernandez
 - 👀 I’m interested in music, golf, and education.
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning a lot!
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me by email at charlesh4758@gmail.com
 
