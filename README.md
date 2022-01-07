@@ -2,7 +2,7 @@
 - 👀 I’m interested in music, golf, and education.
 - 🌱 I’m currently learning a lot! Focusing on assembling and deploying with more comprehensive Back End skills.
 - 👓 I’m looking to collaborate on anything that can continue my learning process.
-- 📫 You can reach me by email at charlesh4758@gmail.com
+- 📫 Email me at charlesh4758@gmail.com
 - 💻 linkedIn profile https://www.linkedin.com/in/charlesh4758/
 
 <!---
